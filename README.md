@@ -10,4 +10,3 @@
 - 📫 How to reach me: guillerlaniz.286@gmail.com
 - 😄 Pronouns: He/him.
 - ⚡ Fun fact: I love tacos.
--->
