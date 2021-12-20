@@ -7,6 +7,6 @@
 - 👯 I’m looking to collaborate on any C++/C project.
 - 🤔 I’m looking for help to improve my programming skills and habits.
 - 💬 Ask me about anything.
-- 📫 How to reach me: guillerlaniz.286@gmail.com
+- 📫 How to reach me: omar11.amezquita@gmail.com
 - 😄 Pronouns: He/him.
 - ⚡ Fun fact: I love tacos.
